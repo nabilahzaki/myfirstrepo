@@ -1,3 +1,3 @@
 # myfirstrepo
 
-ayam guring
+ayam balado hijo
